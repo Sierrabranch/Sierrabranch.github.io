@@ -1,1 +1,1 @@
-i ate fried chicken
+This week, I learned so much more about python. I also came to truly understand my project and got to know my group amd metors well. We gathered data from nasas giovnni aswell as well as plotting the points. We also presents powerpoint on aerosols and together gained a better understaning what they are. 
