@@ -1,0 +1,1 @@
+This Week was a very short week. Monday, we practiced our presentation and started our abstract to submit to the AGU. Tuesday we practiced again and we also finished all the final touches on our paper. Wedsnesday we presented and I am pleased with my preformace, we did well as a group. Thursday we presented our project to the physics department.
