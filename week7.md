@@ -1,2 +1,2 @@
  This week we focoused in our presentation. I am very nervous when speaking infront if crowds, so i spent a good amount of time practicing infront of dr. Shamara. I spent alot of time making graphics for our presentation aswell.
- This was a fun week for me and my peers there was alot of laughter and games throughtout our work which i enjoyed.  I also haven been getting to know my high school teacher again which has been njce. Mr. felix is very encouraging and kind.
+ This was a fun week for me and my peers there was alot of laughter and games throughtout our work which i enjoyed.  I also haven been getting to know my high school teacher again which has been njce. Mr. felix is very encouraging and kind. My presentation went well I am pleased.
