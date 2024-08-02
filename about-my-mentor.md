@@ -1,7 +1,13 @@
 ## About My Mentor
 
-My mentor, Mr. Daniel Okon from Morgan State University, is a researcher who’s work focuses on Brain-Computer Interfaces, as well as Human-Robot Interaction. His work aims to leverage novel neurophysiological sensing technologies, software engineering, and robotics to create tools and applications that support the exploration of Brain-Robot Interaction.
+My mentor, Mr. Daniel Okon from Morgan State University, is a researcher who’s work focuses on the Meterolotical affects in our would, as well as Computer Science. His work aims to Reasearch our climate and give meterological information where there was once a gap. His work guides stakeholders and policy makers into making the right decisions for our climate.
 
-[Mentor's Website](https://htilua.org/about-the-pi)
+
+
+
+
+
+
+
 
 
